@@ -8,8 +8,6 @@ Meu nome é babi
 
 ### Você pode entrar em contato comigo :
 
-paludettomarcelo@gmail.com
-
-@baisat
+@00001120752747SP@al.educacao.sp.gov.br
 
 ![](https://media1.tenor.com/m/qEEeX6AZcCwAAAAC/food-eating.gif)
